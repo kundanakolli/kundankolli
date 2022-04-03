@@ -1,2 +1,1 @@
 # kundankolli
-Be sportive
